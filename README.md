@@ -1,0 +1,1 @@
+# NMK-Vikedal-sommer-MX-camp
